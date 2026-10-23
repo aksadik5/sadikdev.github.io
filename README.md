@@ -22,5 +22,5 @@ Experienced private tutor (5+ years) and business manager.
 - BSc (Running)
 
 ## 📫 Contact
-- Email: aksadik53727185@gmail.com
+- Email: aksadiklnx.ak47@gmail.com
 - LinkedIn: https://bd.linkedin.com/in/ak-sadik-05827a38b
